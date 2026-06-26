@@ -6,7 +6,7 @@
 
 ## 📞 Contacto
 - **Email:** [lorenahernandez1997@gmail.com](mailto:lorenahernandez1997@gmail.com)
-- **LinkedIn:** [https://www.linkedin.com/in/anyi-lorena-hern%C3%A1ndez-contreras-3a7370b0/?skipRedirect=true](https://www.linkedin.com/in/anyi-lorena-hern%C3%A1ndez-contreras-3a7370b0/?skipRedirect=true)
+- **LinkedIn:** [www.linkedin.com/in/anyi-lorena-hc](www.linkedin.com/in/anyi-lorena-hc)
 
 ## 🏢 Experiencia Laboral
 ### **ZACOLK MODA** _(2023 - 2025)_
